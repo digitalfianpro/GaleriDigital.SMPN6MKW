@@ -1,1 +1,1 @@
-# GaleriDigital.SMP Negeri 6 Manokwari
+# SMP Negeri 6 Manokwari
