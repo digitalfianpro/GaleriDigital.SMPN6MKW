@@ -1,1 +1,1 @@
-# GaleriDigital.SMPN6MKW
+# GaleriDigital.SMP Negeri 6 Manokwari
